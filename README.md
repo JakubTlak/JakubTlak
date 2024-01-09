@@ -8,7 +8,7 @@ About Me:
 
 🕵️ Looking for my first commertial experience.
 
-💡 I spend my days on developing my passions and new projects
+💡 I spend my days on developing my passions and new projects.
 
 My best qualities:
 
