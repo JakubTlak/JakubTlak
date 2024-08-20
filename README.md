@@ -4,7 +4,7 @@ About Me:
 
 🤵‍♂️ I'm junior full-stack developer from Poland who begin his jurney with programing in 2023.
 
-🏙️ Currently living in Hrubieszów.
+🏙️ Currently living in Warsaw.
 
 🕵️ Looking for my first commertial experience.
 
