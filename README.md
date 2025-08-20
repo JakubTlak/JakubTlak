@@ -6,8 +6,6 @@ About Me:
 
 🏙️ Currently living in Warsaw.
 
-🕵️ Looking for my first commertial experience.
-
 💡 I spend my days on developing my passions and new projects.
 
 My best qualities:
